@@ -35,23 +35,23 @@ Relación de medida entre la población juvenil y la población en general del m
 >Nota. Tomado de http://www.cinu.mx/minisitio/UNjuventud/preguntas_frecuentes/ 
 
 De esta manera, con las estadísticas proporcionadas por las mismas Naciones Unidas vemos que, en la resolución 40/14, la preocupación general de esta Asamblea se centra en que la juventud ingrese en aquel organismo y establezca su etapa de vida como una consolidación formal en el trabajo y la educación (ONU, 1985). Por ello entendemos, asimismo, cómo este sector biológico–temporal juega un papel importante en el ámbito de la producción mundial, ya que la misma proclamación del año de la Juventud lo enuncia, cuando habla de Participación, Desarrollo, Paz, a lo cual, se podría preguntar en el presente texto: ¿qué entiende tal organismo, ideal y prácticamente, sobre la Participación, el Desarrollo y la Paz? Apropósito de esto, podríamos dar una primera respuesta a partir de los enfoques sobre la juventud para estas tres categorías que son expuestos por medio del  _"Programa de Acción Mundial para los Jóvenes hasta el año 2000 y años subsiguientes (PAMJ)_," en los cuales se exponen los siguientes puntos de atención que se deben tener en cuenta en todos los gobiernos para desarrollar estas categorías plenamente:
- • Educación
-• Empleo
-• El hambre y la pobreza
-• Salud
-• Medio Ambiente
-• Uso indebido de drogas
-• Delincuencia juvenil
-• Actividades recreativas
-• Las niñas y las jóvenes
-• Plena y efectiva participación de los jóvenes en la vida de la sociedad y en la adopción de decisiones
+>• Educación
+>• Empleo
+>• El hambre y la pobreza
+>• Salud
+>• Medio Ambiente
+>• Uso indebido de drogas
+>• Delincuencia juvenil
+>• Actividades recreativas
+>• Las niñas y las jóvenes
+>• Plena y efectiva participación de los jóvenes en la vida de la sociedad y en la adopción de decisiones
 
 En el año 2003 la Asamblea General aprobó 5 temáticas adicionales de preocupación para asuntos juveniles, las cuales son:
-• Globalización
-• Tecnologías de la información y la comunicación
-• Virus de la inmunodeficiencia humana y síndrome de inmunodeficiencia adquirida
-• Los jóvenes y la prevención de conflictos
-• Relaciones intergeneracionales   
+>• Globalización
+>• Tecnologías de la información y la comunicación
+>• Virus de la inmunodeficiencia humana y síndrome de inmunodeficiencia adquirida
+>• Los jóvenes y la prevención de conflictos
+>• Relaciones intergeneracionales   
 
 En este orden de ideas, Participación, Desarrollo, Paz, se hacen manifiestas en la juventud sólo cuando se atacan, en primera medida, las problemáticas de la juventud misma que impiden el desarrollo de estos postulados (ONU, 2008). Entendido esto, si le realizáramos una pregunta a cada temática con relación a la juventud podríamos llegar a cuestionarnos: ¿por qué la juventud y las relaciones intergeneracionales? ¿por qué la juventud y la prevención de conflictos? ¿por qué la juventud y la globalización, la delincuencia, el medio ambiente, la educación? ¿qué tiene que ver eso con la Participación, el Desarrollo y la Paz? ¿acaso esas problemáticas no son las que los jóvenes deben combatir siendo el futuro del mundo? Por ende, si la juventud no ha llegado a “ser”, pero existe y, en consecuencia, está siendo tematizada a partir de sus manifestaciones problemáticas, ser joven, en sí mismo, es una problemática para el mundo contemporáneo. La juventud es un problema para la economía y la producción pues sus conflictos le marginan de la sociedad, aunque, en otra medida, esta carencia de “ser” pueda llegar a serle útil al sistema.
 Con lo anterior comprendemos lo siguiente. Aunque la ONU proclame en 1985 el Año de la Juventud, esto no significa que antes no hubiese habido jóvenes, o que la sociedad no se preocupara de estos, sino que, a partir de las diversas manifestaciones de los años 50–60–70, donde este sector se tomó, en sus palabras “el mundo”  por medio de su marginalidad cultural, gestó que los estamentos de las diferentes sociedades fueran enjuiciados en cada uno de sus fundamentos. Hacer memoria, por ejemplo, el caso del beatnik y del hippie en América del Norte, del nadaísta en Colombia, del punk en Europa y América, del horazeriano en Perú, del infrarrealista en México y, además, de todos los diferentes movimientos estudiantiles que marcaron los años sesenta en Francia, México, España, Argentina, Japón, etc., buscando la renovación de todas aquellas esferas político–culturales que envolvían a los pueblos. Este movimiento cultural dio pie para que la juventud entrara a ser revisada por diversas disciplinas del conocimiento, además de ingresar al ámbito político del poder cuando los gobiernos escrutaron asociarse con los jóvenes rompiendo sus colectivos y, buscando con esto, tranquilizar toda su crítica frente al poder, como el caso que se presenta en el actual documento con respecto a la ONU.
